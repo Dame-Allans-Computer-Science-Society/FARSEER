@@ -1,4 +1,3 @@
 # FARSEER
 
-Epic Bing Chungus, come join us sussy bakas as we fight climate change. 
-This was Made for the KS5 gaming challenge hosted by newcastle mayor, made to promote climate change awareness.
+VERY COOL climate change awareness game made for a KS5 competition
